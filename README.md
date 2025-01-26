@@ -1,1 +1,1 @@
-This is Rose-Colette's portfolio.
+This is Rose-Collette's portfolio.
